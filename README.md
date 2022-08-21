@@ -1,0 +1,6 @@
+- Hi, I’m @kfgarrity
+- I'm a condensed matter theorist / computational materials scientist
+- I'm a researcher at NIST Gaithersberg: [NIST Bio](https://www.nist.gov/people/kevin-garrity)
+- NRC Postdoc opportunity for U.S. citizens [HERE](https://nrc58.nas.edu/RAPLab10/Opportunity/Opportunity.aspx?LabCode=50&ROPCD=506431&RONum=C0595), you don't have to be limited to exactly what is in the write-up, feel free to discuss any related projects with me.
+- Sorry, I'm directly hired by the U.S. government [DOC](https://www.commerce.gov/) and cannot waive the citizenship requirement for NRC postdocs at NIST.
+- Contact me to discuss kevin.garrity@nist.gov
